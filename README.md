@@ -1,0 +1,2 @@
+# SKLEPPIERWSZY
+GitHub Pages
